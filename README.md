@@ -1,1 +1,1 @@
-# gurjyotsingh2003.github.io
+# Gurjyot Singh.github.io
